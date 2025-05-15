@@ -10,7 +10,7 @@ Are you tired of taking meeting notes manually or missing key insights from Zoom
 ### [Use This Link To Get 55% OFF ](https://tactiq.io/?via=75off).
 
 
-[![Discount button](https://github.com/user-attachments/assets/e5cb2122-5258-4331-bbff-048ba1ae5555)](https://tactiq.io/?via=75off)
+[![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)](https://tactiq.io/?via=75off)
 
 
 [![Discount button](https://github.com/user-attachments/assets/ebb57b27-88f2-444d-937e-caeaac45b5af)](https://tactiq.io/?via=75off)
